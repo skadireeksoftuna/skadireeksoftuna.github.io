@@ -1,1 +1,0 @@
-# skadireeksoftuna.github.io
